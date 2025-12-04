@@ -1,0 +1,1 @@
+Doc Ideia de Jogo: https://docs.google.com/document/d/1STWUzhTOY4PXASfPDMYhEetHS7WGmVaL-D2QIn5dRr0/edit?usp=sharing
